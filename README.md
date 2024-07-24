@@ -1,14 +1,19 @@
-## BOAS VINDAS AO MEU PERFIL 🚀
+## BOAS VINDAS AO MEU PERFIL 🚀🇧🇷
 
 
-Meu nome é Gabriel Vidal;🤙
+ Meu nome é Gabriel Vidal;🤙
 
--Estou estudando na *ALURA*; 🖥️🖱️
+-Estou estudando na [**ALURA**](https://www.alura.com.br); 🖥️🖱️
 
--Estou me desenvolvendo na linguagem JavaScript;
+-Estou me desenvolvendo na linguagem JavaScript; 💸
 
+-Estudo no Colégio Estadual do Campo Luiz de Jesus Correia;📖
 
--Estudo no Colégiop Estadual do Campo Luiz de Jesus Correia;📖
+-Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos;😄
 
--Utilizo esse espaço para minha organização e compartilhamento
+_Você pode entrar em contato comigo_ 📫
+
+**gabriel.vidal04@escola.pr.gov.br**
+
+![](https://media1.tenor.com/m/QDiL2P9S__YAAAAd/shrass-shrek.gif)
 
