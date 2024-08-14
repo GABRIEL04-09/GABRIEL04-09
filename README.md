@@ -15,5 +15,5 @@ _Você pode entrar em contato comigo_ 📫
 
 **gabriel.vidal04@escola.pr.gov.br**
 
-![](https://media1.tenor.com/m/QDiL2P9S__YAAAAd/shrass-shrek.gif)
+![](https://media1.tenor.com/m/Sh1Jkqa-C-YAAAAd/cristiano-ronaldo.gif)
 
