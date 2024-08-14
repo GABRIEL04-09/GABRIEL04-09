@@ -15,5 +15,5 @@ _Você pode entrar em contato comigo_ 📫
 
 **gabriel.vidal04@escola.pr.gov.br**
 
-![](https://media1.tenor.com/m/Sh1Jkqa-C-YAAAAd/cristiano-ronaldo.gif)
+![](https://media1.tenor.com/m/LsYPAE9JiP8AAAAd/rolando-ronaldo.gif)
 
